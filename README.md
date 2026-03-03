@@ -15,7 +15,9 @@
 <p align="center">
 - dni if under 15 !! ,, i ' m 17-19
 <p align="center">
-- socials below , clic the icons :o)
+- iwcaution , uf !
+<p align="center">
+- socials below , click the icons :o)
 
 <p align="center">
 <a href="https://www.roblox.com/users/3783538863/profile">
