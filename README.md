@@ -1,8 +1,21 @@
 <p align="center">
-  <img height="525" width="500" src="https://cdn.discordapp.com/attachments/757933544734457951/1478183560278970368/Untitled948_20260302191335.png?ex=69a77938&is=69a627b8&hm=06a2967fa4e2c0312ebb44b1e327c5bfc7f0efd3a81a7ce15f2c8308492e0c3f"/>
+  <img height="525" width="535" src="https://cdn.discordapp.com/attachments/757933544734457951/1478187997856923728/Untitled991_20260302193113.png?ex=69a77d5a&is=69a62bda&hm=d3b0c17461591d335a1d1b04198da86195d46491454f2e35c0e9ee80455ff723"/>
 </a>
 
+<p align="center">
+  <img height="500" width="500" src="https://orig00.deviantart.net/9d1e/f/2017/206/b/8/moon_divider_by_catspy69-dbhmcdo.png"/>
+</a>
 
+<p align="center">
+- hi ! call me aether / astro , my prns r listed on my acc ^__^~
+<p align="center">
+- astro + elliot fictionkin / fictionflect
+<p align="center">
+- dw , waapp , genshin , splatoon , danganronpa + more enthusiast
+<p align="center">
+- dni if under 15 !! ,, i ' m 17-19
+<p align="center">
+- socials below , clic the icons :o)
 
 <p align="center">
 <a href="https://www.roblox.com/users/3783538863/profile">
